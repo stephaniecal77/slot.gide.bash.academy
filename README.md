@@ -1,0 +1,1 @@
+# slot.gide.bash.academy
